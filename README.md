@@ -9,3 +9,5 @@
 ## И еще чуть-чуть информации
 
 - Обожаю кубики льда
+
+![nrpXSPzhdVM](https://github.com/888KEKC888/webpage/assets/163746741/f4ec6133-0e59-4558-8a9b-414d344098ff)
